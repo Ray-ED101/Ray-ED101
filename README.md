@@ -1,6 +1,6 @@
 # About me 🐐
 - ℹ  Former Graphics Designer
-- 🌱 I’m currently learning Fusion360 & Python.
+- 🌱 Vibe Coder.
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: I love multiplayer horror games.
 - ❤  Status: In a relationship
